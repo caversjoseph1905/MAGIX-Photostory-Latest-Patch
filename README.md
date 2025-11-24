@@ -1,0 +1,1 @@
+# MAGIX-Photostory-Latest-Patch
